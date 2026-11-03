@@ -1,0 +1,1 @@
+# boardfoot-pro-app-ads-txt
